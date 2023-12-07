@@ -1,0 +1,1 @@
+# japanblog.github.io
